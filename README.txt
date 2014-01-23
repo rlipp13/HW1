@@ -1,2 +1,0 @@
-Ryan Lipp
-Atlanta Braves
